@@ -1,1 +1,1 @@
-este es un archivo hecho con amor, en cuanto a terminos de evolucion propia y global.
+este es un archivo hecho con amor, en cuanto a terminos de evolucion propia y global. vamos de nuevo
