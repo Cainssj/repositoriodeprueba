@@ -1,2 +1,1 @@
-# repositoriodeprueba
-este es otro repositorio de prueba con amor
+este es un archivo hecho con amor, en cuanto a terminos de evolucion propia y global.
